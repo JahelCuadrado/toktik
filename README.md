@@ -1,4 +1,4 @@
-![Uploading video_2023-05-04_11-30-56.gif…]()
+![video_2023-05-04_11-30-56 (4)](https://user-images.githubusercontent.com/81108487/236169390-04648f5b-4a0e-4520-a5c1-b5ad050fca7a.gif)
 
 # toktik
 
